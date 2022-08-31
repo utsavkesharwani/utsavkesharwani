@@ -30,6 +30,13 @@
 
 - As a friend and buddy, love chatting on anything. I try to listen keenly and you'll have my undisturbed attention.
 
+## Meetings and punctuality
+- Let's aim to make the meetings productive as much as possible by following but not limiting to these [three rules established by Jeff Bezos at Amazon](https://www.thinkbusiness.ie/articles/jeff-bezos-rules-productive-meetings-amazon/).
+
+- One of my previous managers adviced me regarding time punctuality, "If you cannot be on time, be early". :alarm_clock:
+    - If you've accepted a meeting invite, I would prefer to start & end it on time. :hourglass_flowing_sand:
+    - Alternatively, if you won't be make it to the meeting, please decline upfront (adding a reason helps). Additionally, do suggest alternative time-slot.
+
 ## To stay in touch
 - Let's connect on [<img src="https://i.stack.imgur.com/gVE0j.png" alt="linkedin"> LinkedIn
   </a>](https://www.linkedin.com/in/utsavkesharwani/).
